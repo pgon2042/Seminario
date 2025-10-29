@@ -2,6 +2,6 @@
 
 ## Diego Caldera el mejor.
 
-### Alvaro el peor.
+### Alvaro el peor. DE TODOS<
 
 #### Pablo el troll.
